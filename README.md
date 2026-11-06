@@ -1,0 +1,1 @@
+# k20_NQA_Portfolio
